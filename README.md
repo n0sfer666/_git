@@ -1,0 +1,1 @@
+Omaewa mo shinderu
